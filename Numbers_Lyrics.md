@@ -28,21 +28,21 @@ Oh, how much it hurts to see you go…
 
 Generating lyrics is a pain
 
-**Add another 6, yeah
+**Add another 6, yeah**
 
-Flip the numbers backward
+**Flip the numbers backward**
 
-Make the 2 a 3, yeah
+**Make the 2 a 3, yeah**
 
-ABCDEFG
+**ABCDEFG**
 
-Multiply by 9, yeah
+**Multiply by 9, yeah**
 
-Add the numbers to 4** *(might be “two” instead of "to")*
+**Add the numbers to 4** *(might be “two” instead of "to")*
 
-**17 is first, yeah
+**17 is first, yeah**
 
-ABCDEFG**
+**ABCDEFG**
 
 *Bold part of text - the golden ratio on the screen*
 
