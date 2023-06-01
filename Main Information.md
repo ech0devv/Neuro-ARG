@@ -37,3 +37,12 @@
 
 ### All ARG materials obtained so far can be found on [Google Drive](https://drive.google.com/drive/folders/1qm6GSRlstTmjbyOFCuH1OhSmPK4pi4Aa)
 
+## Navigation
+
+### ["Numbers Folder"](https://github.com/ech0devv/Neuro-ARG/tree/main/Numbers)
+
+**[Main information about "Numbers" video](https://github.com/ech0devv/Neuro-ARG/blob/main/Numbers/Numbers_Information.md)**
+
+**["Numbers" song lyrics](https://github.com/ech0devv/Neuro-ARG/blob/main/Numbers/Numbers_Lyrics.md)**
+
+**["Numbers" video description](https://github.com/ech0devv/Neuro-ARG/blob/main/Numbers/Numbers_Description.md)**
