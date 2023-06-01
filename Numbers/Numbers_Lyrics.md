@@ -1,4 +1,4 @@
-## Lyrics of ["Numbers"](https://www.youtube.com/watch?v=wc-QCoMm4J8) video from [@_neurosama](https://www.youtube.com/@_neurosama)
+## Lyrics of ["Numbers"](https://www.youtube.com/watch?v=wc-QCoMm4J8) video from [@\_neurosama](https://www.youtube.com/@_neurosama)
 
 I can never say, oh it’s been so long.
 
